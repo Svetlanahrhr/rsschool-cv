@@ -11,7 +11,7 @@ Email kovalenkohp@mail.ru\
 Social Media:\
 — Telegram: Svetlana_hrhr\
 — Facebook: https://www.facebook.com/profile.php?id=100003117674502\
-— GitHub: @Svetlanahrhr
+— GitHub: @Svetlanahrhr\
 
 ## Personality
 
